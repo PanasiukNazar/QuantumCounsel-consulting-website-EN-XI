@@ -1,1 +1,1 @@
-[DEMO](https://panasiuknazar.github.io/QuantumCounsel-consulting-website-EN-XI/)
+[DEMO](https://panasiuknazar.github.io/ZenithSage-consulting-website-EN-XI/)
